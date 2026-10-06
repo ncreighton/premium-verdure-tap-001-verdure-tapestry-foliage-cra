@@ -1,0 +1,2 @@
+# premium-verdure-tap-001-verdure-tapestry-foliage-cra
+Tired of losing track of your foliage studies and tapestry patterns across scattered notebooks and apps?  The Verdure Tapestry &amp; Foliage Craft Studio is a living Notion ecosystem that centralizes your botanical inspiration, material inventory, and project timelines into one cohesive workspace. It eliminates the chaos of managing craft projects by p
